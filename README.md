@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AbhinavFromiNdIa
+- 👀 I’m interested in BioTECH
+- 🌱 I’m currently learning PCB (Physics , chemistry , biology )
+- 🌱 Currently in       in for INDIA
+- 📫 How to reach me - mail at for_school.work@outlook.com
